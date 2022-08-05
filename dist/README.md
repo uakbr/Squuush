@@ -1,2 +1,0 @@
-# Squuush
-Squuush
